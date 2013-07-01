@@ -1,3 +1,3 @@
 2013SummerRobotProject
 ======================
-Last weeekend in June.
+Last weekend in June.
